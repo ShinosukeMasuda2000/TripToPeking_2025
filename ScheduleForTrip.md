@@ -18,6 +18,7 @@
    国家水泳センターも水立方（Water Cube）と呼ばれ特徴的な建造物だ。
 
 4. 798芸術区
+   
    1950年代に東ドイツの支援で建設された工場群跡地。現在は現代アーティストが活躍するアトリエやギャラリーが集中している。
    代表的なスポットとして、UCCA（尤倫斯当代芸術中心, UCCA Center for Contemporary Art）、PACE Beijing、Galleria Continua、Iberia Center for Contemporary Art。
    日本のBTP（Beijing Tokyo Art Projects / 北京東京藝術工程）もギャラリーを構えている。
