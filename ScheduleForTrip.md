@@ -19,6 +19,11 @@
 ## 航空機情報
 
 - 予約メールをプリントして持っていく。
+- PKX から Caoquiao Station（Line 10）まで Daxing Airport Lineで向かい、地下鉄へ乗り換え
+
+## 宿泊地情報
+- 知和行青年酒店
+  -- 最寄り駅：十里堡 Shilipu（6号線, Line 6）
 
 ## 必須アプリ
 - wechat : コミュニケーション、予約
@@ -50,7 +55,7 @@
    有名なのは「鳥の巣(Bird's Nest)」と呼ばれる国家体育場。収容人数は91,000人（国立競技場は 67,000 人）。
    国家水泳センターも水立方（Water Cube）と呼ばれ特徴的な建造物だ。
 
-4. 798芸術区
+4. 798芸術区（最寄り駅：望京南 Wangjingnan　Line 12）
    
    1950年代に東ドイツの支援で建設された工場群跡地。現在は現代アーティストが活躍するアトリエやギャラリーが集中している。
    代表的なスポットとして、UCCA（尤倫斯当代芸術中心, UCCA Center for Contemporary Art）、PACE Beijing、Galleria Continua、Iberia Center for Contemporary Art。
