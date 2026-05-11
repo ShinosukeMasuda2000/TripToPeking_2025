@@ -1,4 +1,5 @@
 # readme
+<img width="2800" height="1980" alt="IMG_4613" src="https://github.com/user-attachments/assets/3826a036-8f0b-4f4f-a87a-58ec51f3e57f" />
 
 北京に3人で旅行してから、9ヶ月が過ぎた。ほとんど何も覚えていないが本を作ろうと思う。
 3人の視点を同時に見たり、別々に見たりできる本。
