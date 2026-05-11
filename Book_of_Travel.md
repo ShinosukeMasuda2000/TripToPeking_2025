@@ -18,8 +18,8 @@
 睡蓮　夕暮れの効果
 最も差し迫った瞬間をとらえることは出来ない。
 Shinnosuke masuda
-<img width="1074" height="1523" alt="IMG_1048" src="https://github.com/user-attachments/assets/03fcb4b9-fa12-4d01-8b6d-245d528d03de" />
 
+<img width="1074" height="1523" alt="IMG_1048" src="https://github.com/user-attachments/assets/03fcb4b9-fa12-4d01-8b6d-245d528d03de" />
 やがて与えられた時が満ちて
 Motoharu Yoshida
 
@@ -98,7 +98,6 @@ S が運転手に数分待たせることを伝えて、飛び出す。自分も
 笑いが込み上げてきた。最高の旅行の幕開けだ。そう感じた。
 
 <img width="1280" height="865" alt="ファイル 137" src="https://github.com/user-attachments/assets/83556221-2189-449f-ad39-4c783b85ca54" />
-
 「はるか」は既に到着していた。
 タクシーにはマニュアル通りの低姿勢な謝罪と感謝を述べて、ホームへ急いだ。
 「はるか」は京都駅と関西空港をつなぐ特急列車だ。
