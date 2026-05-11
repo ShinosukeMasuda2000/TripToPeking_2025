@@ -27,6 +27,9 @@ Motoharu Yoshida
 ● 日本にて
 
 ## Y
+<img width="828" height="1792" alt="IMG_9692" src="https://github.com/user-attachments/assets/733025ba-6de6-4bd2-b1fd-dcb399f49a26" />
+<img width="828" height="1792" alt="IMG_9691" src="https://github.com/user-attachments/assets/b2dad1b3-dca1-4bd4-a627-8aa268e7078c" />
+
 Y は明日に迫った北京旅行に必要な荷物を勘案していた。
 机の上には既に、メガネやフィルムカメラが置かれている。
 すでに深夜の24時を回っていた。
