@@ -18,6 +18,7 @@
 睡蓮　夕暮れの効果
 最も差し迫った瞬間をとらえることは出来ない。
 Shinnosuke masuda
+<img width="1074" height="1523" alt="IMG_1048" src="https://github.com/user-attachments/assets/03fcb4b9-fa12-4d01-8b6d-245d528d03de" />
 
 やがて与えられた時が満ちて
 Motoharu Yoshida
