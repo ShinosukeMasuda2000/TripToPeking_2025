@@ -27,9 +27,8 @@ Motoharu Yoshida
 ● 日本にて
 
 ## Y
-<img width="828" height="1792" alt="IMG_9692" src="https://github.com/user-attachments/assets/733025ba-6de6-4bd2-b1fd-dcb399f49a26" />
 <img width="828" height="1792" alt="IMG_9691" src="https://github.com/user-attachments/assets/b2dad1b3-dca1-4bd4-a627-8aa268e7078c" />
-
+<img width="828" height="1792" alt="IMG_9692" src="https://github.com/user-attachments/assets/b271b6ea-b5fa-4407-ab72-0b13ab08e6c1" />
 Y は明日に迫った北京旅行に必要な荷物を勘案していた。
 机の上には既に、メガネやフィルムカメラが置かれている。
 すでに深夜の24時を回っていた。
@@ -98,6 +97,7 @@ S が運転手に数分待たせることを伝えて、飛び出す。自分も
 ようやくYの上体は上下にリズムを取り始めたが、気持ちの悪いスキップだし短足だった。
 笑いが込み上げてきた。最高の旅行の幕開けだ。そう感じた。
 
+<img width="1280" height="865" alt="ファイル 137" src="https://github.com/user-attachments/assets/83556221-2189-449f-ad39-4c783b85ca54" />
 
 「はるか」は既に到着していた。
 タクシーにはマニュアル通りの低姿勢な謝罪と感謝を述べて、ホームへ急いだ。
